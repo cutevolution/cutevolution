@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cutevolution
-- 👀 I’m interested in what is interesting.
+- 👀 I’m interested in what I’m interested in.
 - 🌱 I’m currently learning what I am learning.
 - 💞️ I’m looking to collaborate on what I'm collaborating on
 - 📫 How to reach me when you reach me.
